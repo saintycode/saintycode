@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @saintycode
-- 👀 I’m interested in mothernature
+- 👀 find me on insta @saint_codes
+- 🖥️ I’m interested in game development 
 - 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on basic projects
 - 📫 How to reach me @saint.g linkedin
