@@ -1,5 +1,5 @@
 - 👋 Hi, I’m saint
-- 👀 find me on insta @saint_codes
+- 👀 find me on insta @sainty_codes
 - 🖥️ I’m interested in cybersecurity 
 - 🌱 I’m currently learning ethnical hacking
 - 💞️ I’m looking to collaborate on basic projects
